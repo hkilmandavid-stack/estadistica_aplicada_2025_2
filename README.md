@@ -1,0 +1,2 @@
+# estadistica_aplicada_2025_2
+Estadistica_aplicada_2025
